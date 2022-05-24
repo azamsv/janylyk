@@ -1,1 +1,1 @@
-https://azamsv.github.io/janylyk/ НОВОСТНОЙ САЙТ
+https://azamsv.github.io/janylyk/ НОВОСТНАЯ СТРАНИЦА
